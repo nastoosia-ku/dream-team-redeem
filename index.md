@@ -7,4 +7,4 @@ Or whether we could make such a beautiful team..._
 
 ### Contact
 
-[Contact author](anastasiia.kusiumova@gmail.com) and we’ll help you out.
+[Contact us](anastasiia.kusiumova@gmail.com) and we’ll help you out.
